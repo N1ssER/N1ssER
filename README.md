@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @N1ssER
+- CS student at KAU 
 - 👀 I’m interested in SPORTS AND anything about programming
 - 🌱 I’m currently learning HTML and CSS
 - 📫 How to reach me X: @N19err and insta: @dvlh
